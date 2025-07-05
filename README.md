@@ -22,3 +22,11 @@ If you're online looking for <a href="https://www.smokestudioz.com/services" tit
 <h3>A Studio for the Modern Creator</h3>
 The media and entertainment industry is constantly evolving—and so is Smokestudioz. From short-form content for TikTok and Instagram Reels to cinematic productions for YouTube and streaming platforms, the studio adapts to the latest trends while maintaining high production values.<br>
 Whether you're launching a new product, dropping your next track, or telling a powerful story, Smokestudioz is the name to trust when you need  <a href="https://www.smokestudioz.com/services" title="Video production services near me" alt"video production services near me" <a>video production services near me</a> Ready to create something amazing? Let’s roll.<br>
+<h3>Get in touch with us:</h3>
+<b>Visit: https://www.smokestudioz.com/services</b><br>
+<b>E-mail: studiozsmoke@gmail.com </b><br>
+<b>Address: B92/A, First Floor, Block A, Chhattarpur, Delhi 110074</b><br>
+<h3>Follow us on:</h3>
+<b>Instagram: https://www.instagram.com/smokestudioz/ </b><br>
+<b>LinkedIn: https://in.linkedin.com/company/smoke-studioz </b><br>
+<b>Our Youtube Channel: https://www.youtube.com/@SmokeStudioz</b>
